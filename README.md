@@ -8,6 +8,8 @@
 
 ### ¿Quién es Morat?
 
+![Morat](/Users/isabelvalladolid/Documents/ModelosNoLineales/tarea-readme-file/images/Captura de pantalla 2026-01-21 a la(s) 2.02.43 p.m..png)
+
 + Cuatro colombianos que tocan pop-folk latino
 
 + Especialistas en canciones que suenan felices pero te destruyen con educación.
